@@ -8,5 +8,5 @@ Meu nome é Lourdes Maria
 
 -Utilizo este espaço para minha organização e compartilhamento dos meus projetos desenvilvidos
 
-###Você pode entrar em contato comigo-00001092003617sp@al.educacao.sp.gov.br
+###Você pode entrar em contato comigo- 00001092003617sp@al.educacao.sp.gov.br
 
